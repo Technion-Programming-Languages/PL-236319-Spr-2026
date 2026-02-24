@@ -1,1 +1,0 @@
-[Homework link](https://docs.google.com/document/d/1OLQPgF4AGd--MSbjmU1-_BAWGpV1upSaTDRgidDSAx0/edit?usp=sharing)
